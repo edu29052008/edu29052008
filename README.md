@@ -1,6 +1,6 @@
 ##Bem vindo ao meu perfil 🥇
 
-![](https://media1.tenor.com/m/jFxdicbTJbQAAAAd/happy-dance.gif)
+![](https://media1.tenor.com/m/7TzEQ2nkWscAAAAd/funny-memes-discord.gif)
 <!--
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
